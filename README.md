@@ -1,3 +1,2 @@
-Developement of MrMc 2
+!Due to lack of interest the project has gone private and will not be available via Apple and Amazons App Stores
 
-https://www.reddit.com/r/MrMcTv/comments/s2y7nd/announcement_mrmc_2/?utm_source=share&utm_medium=ios_app&utm_name=iossmf
